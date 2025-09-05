@@ -22,5 +22,3 @@
 ### Fun Facts
 - I play rugby at varsity Rugby at BAC.
 - I am an international student also at BAC.
-
-Bye
