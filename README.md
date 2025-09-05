@@ -10,3 +10,8 @@ Currently I am a student at Belmont Abbey College, persuing a bachelors degree i
 
 Current Goals
 1. Graduating in May 2027 my Bachelors degree in Data Analytics at Belmont Abbey College.
+
+
+Contact Information
+[Visit my LinkedIn]
+ https://www.linkedin.com/in/tomas-agostino-alvarenga-4a7a80265/
